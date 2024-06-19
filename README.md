@@ -1,1 +1,1 @@
-![My life?](https://media.discordapp.net/attachments/920649468418850826/1245486414284456038/image.png?ex=665a3e9d&is=6658ed1d&hm=d7184aa8c9fd9c616276520fa1ca2d0c19627e2a3e1251c76ae31f65f3b48703&=&format=webp&quality=lossless&width=840&height=453)
+
